@@ -80,7 +80,7 @@ This is the link of [PCB editabl file](https://oshwlab.com/sharmaz747/multipurpo
 
 If you seriously need quality PCB quickly in your hand then you must have to try [JLCPCB](https://jlcpcb.com/IAT ) PCB manufacturing service.
 They have Special offer of $2 for 1-4 Layer PCBs, free SMT assembly monthly.
-If you get yourself registered today at [JLCPCB](https://jlcpcb.com/IAT ) you get 27$ welcome coupon from [JLCPCB](https://jlcpcb.com/IAT ).
+If you get yourself registered today at [JLCPCB](https://jlcpcb.com/IAT ) you get 30$ welcome coupon from [JLCPCB](https://jlcpcb.com/IAT ).
 
 ![image](https://user-images.githubusercontent.com/19898602/149887107-a4f3293e-a376-431d-94e5-d3458f0addd0.png)
 ![image](https://user-images.githubusercontent.com/19898602/149887168-4885e005-098d-4268-9d34-8bb4e06b21d2.png)
